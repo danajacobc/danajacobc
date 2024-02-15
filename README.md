@@ -1,4 +1,4 @@
-[![djc](https://media.licdn.com/dms/image/D4D16AQGNYog97wGwIg/profile-displaybackgroundimage-shrink_350_1400/0/1702141358801?e=1707955200&v=beta&t=2Afr3qqzHVSk8VFlKA0U9P0B9jLzzVZ2D-Wa5XMYQJI "djc")](https://media.licdn.com/dms/image/D4D16AQGNYog97wGwIg/profile-displaybackgroundimage-shrink_350_1400/0/1702141358801?e=1707955200&v=beta&t=2Afr3qqzHVSk8VFlKA0U9P0B9jLzzVZ2D-Wa5XMYQJI "djc")
+[![djc](https://i.pinimg.com/736x/fa/c1/73/fac173f83732a64dc4ac3932df786417.jpg "djc")](https://i.pinimg.com/736x/fa/c1/73/fac173f83732a64dc4ac3932df786417.jpg "djc")
 
 ------------
 
